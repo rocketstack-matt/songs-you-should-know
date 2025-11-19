@@ -1,5 +1,5 @@
 # Songs you should know
 
-For some reason I don't recall, I decided that each day my sons (Cillian and Fintan) and I should listen to one song that they should know. This is a record of those songs.
+For some reason I don't recall, I decided that each day my sons (Cillian and Fintan) and I should listen to one song that they should know each day. This is a record of those songs.
 
 * 2025-11-19: Paradise City (Guns N' Roses)
