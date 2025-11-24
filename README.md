@@ -7,3 +7,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-11-21: It's Oh so Quiet (Björk)
 * 2025-11-22: My Girl (The Temptations)
 * 2025-11-23: Heroes (David Bowie)
+* 2025-11-24: Unchained Melody (The Righteous Brothers)
