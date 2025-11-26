@@ -9,3 +9,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-11-23: Heroes (David Bowie)
 * 2025-11-24: Unchained Melody (The Righteous Brothers)
 * 2025-11-25: Hey Boy Hey Girl (The Chemical Brothers)
+* 2025-11-26: The Chain (Fleetwood Mac)
