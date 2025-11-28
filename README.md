@@ -11,3 +11,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-11-25: Hey Boy Hey Girl (The Chemical Brothers)
 * 2025-11-26: The Chain (Fleetwood Mac)
 * 2025-11-27: God Save the Queen (Sex Pistols)
+* 2025-11-28: Wouldn't It Be Nice (The Beach Boys)
