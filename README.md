@@ -15,3 +15,5 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-11-29: Let's Twist Again (Chubby Checker)
 * 2025-11-30: Parklife (Blur)
 * 2025-12-01: Don't Look Back in Anger (Oasis)
+* 2025-12-02: Scarborough Fair (Simon & Garfunkke)
+* 2025-12-03: It's Like That (Run-DMC & Jason Nevins)
