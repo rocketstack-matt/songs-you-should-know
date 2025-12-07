@@ -17,3 +17,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-01: Don't Look Back in Anger (Oasis)
 * 2025-12-02: Scarborough Fair (Simon & Garfunkke)
 * 2025-12-03: It's Like That (Run-DMC & Jason Nevins)
+* 2025-12-04: Fast Car (Tracey Chapman)
