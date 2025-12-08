@@ -20,3 +20,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-04: Fast Car (Tracey Chapman)
 * 2025-12-06: Kiss (Prince)
 * 2025-12-07: Tainted Love (Soft Cell)
+* 2025-12-08: Stayin' Alive (Bee Gees)
