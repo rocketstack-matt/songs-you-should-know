@@ -18,6 +18,7 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-02: Scarborough Fair (Simon & Garfunkke)
 * 2025-12-03: It's Like That (Run-DMC & Jason Nevins)
 * 2025-12-04: Fast Car (Tracey Chapman)
+* 2025-12-05: Common People (Pulp)
 * 2025-12-06: Kiss (Prince)
 * 2025-12-07: Tainted Love (Soft Cell)
 * 2025-12-08: Stayin' Alive (Bee Gees)
