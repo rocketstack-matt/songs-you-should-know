@@ -24,3 +24,6 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-08: Stayin' Alive (Bee Gees)
 * 2025-12-09: Nothing Compares 2 U (Sinead O'Connor)
 * 2025-12-10: What a Wonderful World (Louis Armstrong)
+* 2025-12-11: Son of a Preacher Man (Dusty Springfield)
+* 2025-12-12: Stuck in the Middle With You (Stealers Wheel)
+
