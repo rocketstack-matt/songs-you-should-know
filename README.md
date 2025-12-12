@@ -22,3 +22,5 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-06: Kiss (Prince)
 * 2025-12-07: Tainted Love (Soft Cell)
 * 2025-12-08: Stayin' Alive (Bee Gees)
+* 2025-12-09: Nothing Compares 2 U (Sinead O'Connor)
+* 2025-12-10: What a Wonderful World (Louis Armstrong)
