@@ -1,4 +1,4 @@
-# Songs you should know
+I# Songs you should know
 
 For some reason I don't recall, I decided that each day my sons (Cillian and Fintan) and I should listen to one song that they should know each day. This is a record of those songs.
 
@@ -26,4 +26,5 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-10: What a Wonderful World (Louis Armstrong)
 * 2025-12-11: Son of a Preacher Man (Dusty Springfield)
 * 2025-12-12: Stuck in the Middle With You (Stealers Wheel)
-
+* 2025-12-13: Empire State of Mind (Jay-Z feat. Alicia Keys)
+* 2025-12-14: London Calling (The Clash)
