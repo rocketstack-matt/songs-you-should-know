@@ -32,3 +32,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-16: Seven Nation Army (The White Stripes)
 * 2025-12-17: Warwick Avenue (Duffy)
 * 2025-12-18: Fairy Tale of New Yokr (The Pogues feat. Kirsty MacColl)
+* 2025-12-19: Hey Ya! (Outkast)
