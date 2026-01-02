@@ -36,3 +36,4 @@ For some reason I don't recall, I decided that each day my sons (Cillian and Fin
 * 2025-12-20: Vogue (Madonna)
 * 2025-12-21: Waterfalls (TLC)
 * 2025-12-22: Losing My Religion (R.E.M)
+* 2026-01-02: Dream Catch Me (Newton Faulkner)
